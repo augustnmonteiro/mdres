@@ -15,3 +15,11 @@ Download cellsalive
 
 ### Pathology
 https://www.pathologyoutlines.com/review-questions
+
+
+### Uni Vermont
+https://libraries.uvm.edu/c.php?g=290264&p=1935072
+
+
+### Rare John Martin Collection
+https://www.lib.uiowa.edu/hardin/rare-book-room/osler/
